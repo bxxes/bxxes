@@ -9,3 +9,4 @@
   
    I like most things. Basic DNI is also applied here.
    
+   Biseuxal 
