@@ -1,6 +1,6 @@
 - HELLO SIGMAS AND BETAS..
 
-- 
+ 
    How to reach me - Discord
   
    Pronouns- They/them
